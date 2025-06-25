@@ -7,15 +7,15 @@
 
 - 🌱 I’m currently learning **cybersecurity and its applications.**
 
-- 👨‍💻 All of my personal information is available at [https://linktr.ee/larryt4](https://linktr.ee/larryt4)
+- 👨‍💻 All of my personal information is available at: [https://linktr.ee/larryt4](https://linktr.ee/larryt4)
 
 - 💬 Ask me about **my knowledge of pen-testing.**
 
-- 📫 How to reach me **LarryT4@uci.edu**
+- 📫 How to reach me: **LarryT4@uci.edu**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1mDjCF1t86F9hoV_q-xMAc7vxSsr3kO9H/view](https://drive.google.com/file/d/1mDjCF1t86F9hoV_q-xMAc7vxSsr3kO9H/view)
+- 📄 Know about my experiences: [https://drive.google.com/file/d/1mDjCF1t86F9hoV_q-xMAc7vxSsr3kO9H/view](https://drive.google.com/file/d/1mDjCF1t86F9hoV_q-xMAc7vxSsr3kO9H/view)
 
-- ⚡ Fun fact **I am the first in my family to pursue a career in STEM.**
+- ⚡ Fun fact: **I am the first in my family to pursue a career in STEM.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
